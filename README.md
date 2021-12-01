@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Floranies
+- 👀 I’m interested in skipping this part.
+- 🌱 I’m currently learning how to delete games.
+- 📫 How to reach me : Dont't. You are nowhere near.
